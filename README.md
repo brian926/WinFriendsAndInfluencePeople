@@ -1,4 +1,4 @@
-# How to Win Friends and Influence Peopel
+# How to Win Friends and Influence People
 Take from this [post](https://www.reddit.com/r/socialskills/comments/39ui0d/book_summary_detailed_summary_of_how_to_win/) on Reddit
 
 ### Table of Contents
